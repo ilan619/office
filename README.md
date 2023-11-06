@@ -3,3 +3,4 @@
 3.Currently I'm working in Tagit India Private Ltd..
 4.Postive ah iruda ilan,,unnala mudiyum..
 5..commit it..
+6.think positive.
